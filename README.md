@@ -1,1 +1,1 @@
-![image alt](https://github.com/H4rzy/H4rzy/blob/983e0d4387d0fef0f79230fb07e6fbf160b72493/553040008_775228985331716_4817966676198057523_n.jpg)
+<img width="400" height="225" alt="Image" src="https://github.com/user-attachments/assets/5a2c9a06-0019-49d9-8b8c-360238322405" />
